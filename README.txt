@@ -5,7 +5,7 @@ Tina & Ade Wedding
 AUTHOR:
 DESIGNED & DEVELOPED by FREEHTML5.co
 
-EDITED BY : ADE IHSAN HIDAYATULLAH
+EDITED BY : TRA CODE
 
 Website: http://freehtml5.co/
 Twitter: http://twitter.com/fh5co
